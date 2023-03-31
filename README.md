@@ -1,5 +1,7 @@
 [programing](https://github.com/yuliitezary/windows_soft/releases/tag/programing)
 <br>
+[telegram channel](https://t.me/+J-281U3yISlmODYy)
+<br>
 [montaj](https://github.com/yuliitezary/windows_soft/releases/tag/montaj)
 <br>
 [torrent](https://github.com/yuliitezary/windows_soft/releases/tag/torrent)
